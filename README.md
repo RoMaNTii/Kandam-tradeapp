@@ -1,0 +1,1 @@
+# Kandam-tradeapp
